@@ -51,6 +51,7 @@
 * Not the time to learn, discuss, explain.
 * Bring in everything to have materials on hand to build crude models of a concept, like blocks and bricks.
 * LOTS OF POST-ITS AND PENS
+* Get a room, soundproof, especially
 
 ### Aula 4 - Warm-ups
 * Stretch your mental muscles: warm-up, mainly if team hasn’t done that before or is distracted.
@@ -66,7 +67,7 @@
 * Space remembers: post-its, cover walls, etc. Google Docs can be useful, as I’ve seen.
 * Get physical: “Leave your performance anxieties at the door and jump in with whatever visual tools you have available”.
 * Bodystorming: we act out current behavior/usage patterns and see how they might be altered.
-* Get a room, soundproof, especially
+* friendly competition where people should feel comfortable to take chances*
 
 ### Aula 6 - Don'ts
 * Mainly, Too serious. Too much writing.
